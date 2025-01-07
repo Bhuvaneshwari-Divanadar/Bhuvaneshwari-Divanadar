@@ -5,12 +5,14 @@
 -  Got certified by IIT Bombay for the completion of NPTEL course on 'maternal infant health and child nutrition'
 -  Published a paper on 'Insilico approach to find bioactive compounds against fruit rot disease in Areca catechu' by IRJIET publication.
 -  [e_certificate3.pdf](https://github.com/user-attachments/files/17192823/e_certificate3.pdf)
+-  Currently persuing job training programme at Rapture Biotech Bengaluru.
 
 -  I’m looking to work for the companies corelated to my course...
 -  How to reach me @bhuvanadivandar2002@gmail.com
 - mobile 8792134262 ...
-- [BHUVANESHWARI D-2.pdf](https://github.com/user-attachments/files/17192858/BHUVANESHWARI.D-2.pdf)
-
+- Resume ["C:\Users\HP\Documents\BHUVANESHWARI resume.docx"]
+- 
+-
   
   
 
