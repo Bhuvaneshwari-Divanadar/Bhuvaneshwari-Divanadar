@@ -10,7 +10,8 @@
 -  I’m looking to work for the companies corelated to my course...
 -  How to reach me @bhuvanadivandar2002@gmail.com
 - mobile 8792134262 ...
-- Resume ["C:\Users\HP\Documents\BHUVANESHWARI resume.docx"]
+- Resume [file:///C:/Users/HP/Downloads/BHUVANESHWARI%20resume.pdf]
+- 
 - 
 -
   
